@@ -13,8 +13,8 @@ Get Tokens And vccs
 Claim The Promotion Codes on the Tokens With The Tool
 Have Unlimited Server Boosts/Sell Boosts
 
-https://imgur.com/a/BrNRf6K
-https://imgur.com/a/oueWvg4
+![alt text](https://i.imgur.com/wTQkfn6.png)
+![alt text](https://i.imgur.com/jooY63w.png)
 
 $30 / Week
 $60 / Month
